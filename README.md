@@ -1,3 +1,6 @@
+psst hey you...you want a simple rentry making? HMU!! im 100% willing this is so fun to me
+
+
 ![](https://files.catbox.moe/6gpq5c.gif)
 
 you WILL sign my [ata](https://marcywuzhere.atabook.org/)..
