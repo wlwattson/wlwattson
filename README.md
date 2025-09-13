@@ -1,14 +1,14 @@
 ![creds to 'transfosterparent' on tumblr !](https://files.catbox.moe/nvlqg5.webp)
 
 
-
-
 you WILL sign my [ata](https://marcywuzhere.atabook.org/)..
 
 
 ![](https://komarev.com/ghpvc/?username=wlwattson)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=44csvgkpct67jqlanu7db107a&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
+
+![](https://files.catbox.moe/e5b37k.webp)
 
 
 <!--
