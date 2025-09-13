@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/nvlqg5.webp)
+![creds to 'transfosterparent' on tumblr !](https://files.catbox.moe/nvlqg5.webp)
 
 
 
@@ -10,7 +10,7 @@ you WILL sign my [ata](https://marcywuzhere.atabook.org/)..
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=44csvgkpct67jqlanu7db107a&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-
+!['paulfartmallcop' on tumblr](https://files.catbox.moe/1uw5id.webp)
 <!--
 **wlwattson/wlwattson** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 ![](https://i.pinimg.com/originals/46/7d/22/467d227643b9204d887249ab8ca14130.gif)
