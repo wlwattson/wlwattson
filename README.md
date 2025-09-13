@@ -1,7 +1,7 @@
 
 
 
-![](https://files.catbox.moe/srvgs8.jpg)
+
 
 you WILL sign my [ata](https://marcywuzhere.atabook.org/)..
 
