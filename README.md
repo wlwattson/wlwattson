@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/orwoe6.jpg)
+
 
 *you WILL sign my [ata](https://marcywuzhere.atabook.org/)..* 
 
