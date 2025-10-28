@@ -1,13 +1,27 @@
+<img align="left" src="https://files.catbox.moe/vt0yy7.png"> <br />
+<br />
+<br />
+$${\color{lightgreen}art \space by \space 42yow \space}$$<br />
+<br />
+[strawpage](https://songmi.straw.page/)<br />
+
+[atabook](https://marcywuzhere.atabook.org/)<br />
+
+[rentry](https://rentry.co/laurelh3ll)<br />
+
+[pronouns.cc](https://pronouns.cc/@wlwattson)<br />
+<br />
 
 
-*you WILL sign my [ata](https://marcywuzhere.atabook.org/)..* 
+![](https://komarev.com/ghpvc/?username=wlwattson&color=BA8E23&label=choombas!&style=for-the-badge)   <br />
+<br />
 
 
-![](https://komarev.com/ghpvc/?username=wlwattson&color=BA8E23&label=choombas!&style=for-the-badge)   
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=44csvgkpct67jqlanu7db107a&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
 
-![](https://files.catbox.moe/71sktw.gif)
+
+
 
 
 
