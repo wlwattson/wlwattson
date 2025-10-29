@@ -3,13 +3,13 @@
 <br />
 $${\color{lightgreen}art \space by \space 42yow \space}$$<br />
 <br />
-[strawpage](https://songmi.straw.page/)<br />
+***[strawpage](https://songmi.straw.page/)***<br />
 
-[atabook](https://marcywuzhere.atabook.org/)<br />
+***[atabook](https://marcywuzhere.atabook.org/)***<br />
 
-[rentry](https://rentry.co/laurelh3ll)<br />
+***[rentry](https://rentry.co/laurelh3ll)***<br />
 
-[pronouns.cc](https://pronouns.cc/@wlwattson)<br />
+***[pronouns.cc](https://pronouns.cc/@wlwattson)***<br />
 <br />
 
 
