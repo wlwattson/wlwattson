@@ -1,7 +1,7 @@
-<img align="left" src="https://files.catbox.moe/vt0yy7.png"> <br />
+<img align="right" src="https://files.catbox.moe/aylcw2.png"> <br />
 <br />
 <br />
-$${\color{lightgreen}art \space by \space 42yow \space}$$<br />
+$${\color{yellow}try \space as \space you \space might, \space you \space can't \space kill\space a \space watt  -\space son!}$$<br />
 <br />
 ***[strawpage](https://songmi.straw.page/)***<br />
 
@@ -13,12 +13,12 @@ $${\color{lightgreen}art \space by \space 42yow \space}$$<br />
 <br />
 
 
-![](https://komarev.com/ghpvc/?username=wlwattson&color=BA8E23&label=choombas!&style=for-the-badge)   <br />
+![](https://komarev.com/ghpvc/?username=wlwattson&color=74AEBA&label=visits!&style=for-the-badge)   <br />
 <br />
 
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=44csvgkpct67jqlanu7db107a&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=44csvgkpct67jqlanu7db107a&cover_image=true&theme=novatorem&show_offline=true&background_color=74AEBA&interchange=true&bar_color=74AEBA&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
 
 
 
