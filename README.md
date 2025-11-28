@@ -3,8 +3,6 @@
 <br />
 $${\color{yellow}try \space as \space you \space might, \space you \space can't \space kill\space a \space watt  -\space son!}$$<br />
 <br />
-
-
 ***[atabook](https://marcywuzhere.atabook.org/)***<br />
 
 ***[rentry](https://rentry.co/laurelh3ll)***<br />
