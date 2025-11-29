@@ -1,7 +1,7 @@
 <img align="right" src="https://files.catbox.moe/aylcw2.png"> <br />
 <br />
 <br />
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Electrolize&weight=600&pause=500&color=F7E21D&center=true&multiline=true&width=435&height=100&lines=electricity+i+get%2C%2C+;people...+i+dont+-;thats+how+i+got+here)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Electrolize&weight=600&pause=500&color=F7E21D&multiline=true&width=435&height=100&lines=electricity+i+get%2C%2C+;people...+i+dont+-;thats+how+i+got+here)](https://git.io/typing-svg)
 <br />
 ***[atabook](https://marcywuzhere.atabook.org/)***<br />
 
