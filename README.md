@@ -1,7 +1,10 @@
-<img align="right" src="https://files.catbox.moe/aylcw2.png"> <br />
+<img align="right" src="https://files.catbox.moe/7gc29d.png"> <br />
 <br />
 <br />
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Electrolize&weight=600&pause=500&color=F7E21D&multiline=true&width=300&height=100&lines=electricity+i+get%2C%2C+;people...+i+dont+-;thats+how+i+got+here)](https://git.io/typing-svg)
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Special+Elite&duration=4000&pause=100&color=F73718&multiline=true&width=250&lines=Ain't+nothing+fair.;You+know+that." alt="Typing SVG" /></a>
+<br />
+<br />
+<br />
 <br />
 ***[atabook](https://marcywuzhere.atabook.org/)***<br />
 
@@ -11,12 +14,12 @@
 <br />
 
 
-![](https://komarev.com/ghpvc/?username=wlwattson&color=74AEBA&label=visits!&style=for-the-badge)   <br />
+![](https://komarev.com/ghpvc/?username=wlwattson&color=7E1921&label=visits!&style=for-the-badge)   <br />
 <br />
 
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=44csvgkpct67jqlanu7db107a&cover_image=true&theme=novatorem&show_offline=true&background_color=74AEBA&interchange=true&bar_color=74AEBA&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=44csvgkpct67jqlanu7db107a&cover_image=true&theme=novatorem&show_offline=true&background_color=7E1921&interchange=true&bar_color=7E1921&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
 
 
 
