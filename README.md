@@ -8,7 +8,7 @@
 <br />
 ***[atabook](https://marcywuzhere.atabook.org/)***<br />
 
-***[rentry](https://rentry.co/laurelh3ll)***<br />
+***[rentry](https://rentry.co/sashanne)***<br />
 
 ***[pronouns.cc](https://pronouns.cc/@wlwattson)***<br />
 <br />
