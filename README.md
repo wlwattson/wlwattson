@@ -6,7 +6,7 @@
 <br />
 <br />
 <br />
-***[atabook](https://marcywuzhere.atabook.org/)***<br />
+***blank space for url woops***<br />
 
 ***[rentry](https://rentry.co/sashanne)***<br />
 
