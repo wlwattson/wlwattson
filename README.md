@@ -1,7 +1,7 @@
 <img align="right" src="https://files.catbox.moe/7gc29d.png"> <br />
 <br />
 <br />
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Special+Elite&duration=4000&pause=100&color=F73718&multiline=true&width=250&lines=Ain't+nothing+fair.;You+know+that." alt="Typing SVG" /></a>
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&size=24&duration=4000&color=F7E800&center=true&multiline=true&width=350&height=75&lines=we+hear+the+wilderness;and+it+hears+us)](https://git.io/typing-svg) 
 <br />
 <br />
 <br />
