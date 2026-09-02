@@ -1,4 +1,4 @@
-<img align="right" src="https://files.catbox.moe/7gc29d.png"> <br />
+<img align="right" src="https://www.simpleimageresizer.com/_uploads/photos/e3d4f0d2/Queen_of_Hearts_4_75.jpeg"> <br />
 <br />
 <br />
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&size=24&duration=4000&color=F7E800&center=true&multiline=true&width=350&height=75&lines=we+hear+the+wilderness;and+it+hears+us)](https://git.io/typing-svg) 
@@ -6,15 +6,15 @@
 <br />
 <br />
 <br />
-***blank space for url woops***<br />
+***hi im 15, no specific dni, he/him lesbian (pls read rentry tho)***<br />
 
-***[rentry](https://rentry.co/sashanne)***<br />
+***[rentry](https://rentry.co/vnpalmer)***<br />
 
 ***[pronouns.cc](https://pronouns.cc/@wlwattson)***<br />
 <br />
 
 
-![](https://komarev.com/ghpvc/?username=wlwattson&color=7E1921&label=visits!&style=for-the-badge)   <br />
+![](https://komarev.com/ghpvc/?username=wlwattson&color=yellow&label=visits!&style=for-the-badge&abbreviated=true)   <br />
 <br />
 
 
