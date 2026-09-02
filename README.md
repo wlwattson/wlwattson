@@ -6,7 +6,7 @@
 <br />
 <br />
 <br />
-***hi im 15, no specific dni, he/him lesbian (pls read rentry tho)***<br />
+***Payton, 15, he/him lesbian, i like yellowjackets***<br />
 
 ***[rentry](https://rentry.co/parkinglott)***<br />
 
