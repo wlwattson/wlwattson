@@ -8,7 +8,7 @@
 <br />
 ***hi im 15, no specific dni, he/him lesbian (pls read rentry tho)***<br />
 
-***[rentry](https://rentry.co/vnpalmer)***<br />
+***[rentry](https://rentry.co/parkinglott)***<br />
 
 ***[pronouns.cc](https://pronouns.cc/@wlwattson)***<br />
 <br />
