@@ -1,6 +1,10 @@
 <img align="right" src="https://files.catbox.moe/7finhn.gif"> <br />
 <br />
-<img  align="right" width="188" height="100" alt="ezgif-6acc632e68bf1d29" src="https://github.com/user-attachments/assets/d69bdb62-d1ed-4289-b93f-7d478dea8af5" />
+<img align="right"  width="188" height="100" alt="ezgif-6acc632e68bf1d29" src="https://github.com/user-attachments/assets/ce31ee61-3349-43f0-a727-064b916a21c4" />
+<img align="right"  width="188" height="100" alt="ezgif-1641d9544060b293" src="https://github.com/user-attachments/assets/4d29293e-a2db-4d2d-84cc-d9d7b5a333dd" />
+<img align="right"  width="188" height="100" alt="ezgif-4a1cf743be6200d7" src="https://github.com/user-attachments/assets/a58663e9-c21b-4f08-9b37-144ba6512f0e" />
+" />
+<br />
 <br />
 <br />
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&size=24&duration=4000&color=F7E800&center=true&multiline=true&width=350&height=75&lines=we+hear+the+wilderness;and+it+hears+us)](https://git.io/typing-svg) 
