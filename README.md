@@ -1,4 +1,4 @@
-<img align="right" src="https://files.catbox.moe/msu1cu.jpeg"> <br />
+<img align="right" src="https://files.catbox.moe/wluain.jpeg"> <br />
 <br />
 <br />
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&size=24&duration=4000&color=F7E800&center=true&multiline=true&width=350&height=75&lines=we+hear+the+wilderness;and+it+hears+us)](https://git.io/typing-svg) 
