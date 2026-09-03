@@ -19,7 +19,7 @@
 ![](https://komarev.com/ghpvc/?username=wlwattson&color=yellow&label=visits!&style=for-the-badge&abbreviated=true)   <br />
 <br />
 
-<p align="center">
+<p align="left">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=44csvgkpct67jqlanu7db107a&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=fdd853&bar_color_cover=false">
   </a>
