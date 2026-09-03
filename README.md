@@ -1,5 +1,7 @@
 <img align="right" src="https://files.catbox.moe/7finhn.gif"> <br />
 <br />
+<img  align="right" width="188" height="100" alt="ezgif-6acc632e68bf1d29" src="https://github.com/user-attachments/assets/d69bdb62-d1ed-4289-b93f-7d478dea8af5" />
+<br />
 <br />
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&size=24&duration=4000&color=F7E800&center=true&multiline=true&width=350&height=75&lines=we+hear+the+wilderness;and+it+hears+us)](https://git.io/typing-svg) 
 <br />
