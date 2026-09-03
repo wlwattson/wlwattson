@@ -1,4 +1,4 @@
-<img align="right" src="https://www.simpleimageresizer.com/_uploads/photos/e3d4f0d2/Queen_of_Hearts_4_75.jpeg"> <br />
+<img align="right" src="https://files.catbox.moe/msu1cu.jpeg"> <br />
 <br />
 <br />
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&size=24&duration=4000&color=F7E800&center=true&multiline=true&width=350&height=75&lines=we+hear+the+wilderness;and+it+hears+us)](https://git.io/typing-svg) 
@@ -19,7 +19,11 @@
 ![](https://komarev.com/ghpvc/?username=wlwattson&color=yellow&label=visits!&style=for-the-badge&abbreviated=true)   <br />
 <br />
 
-
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=44csvgkpct67jqlanu7db107a&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=fdd853&bar_color_cover=false">
+  </a>
+</p>
 
 
 
