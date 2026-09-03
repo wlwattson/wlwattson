@@ -2,8 +2,6 @@
 <br />
 <img align="right"  width="188" height="100" alt="ezgif-6acc632e68bf1d29" src="https://github.com/user-attachments/assets/ce31ee61-3349-43f0-a727-064b916a21c4" />
 <img align="right"  width="188" height="100" alt="ezgif-1641d9544060b293" src="https://github.com/user-attachments/assets/4d29293e-a2db-4d2d-84cc-d9d7b5a333dd" />
-<img align="right"  width="188" height="100" alt="ezgif-4a1cf743be6200d7" src="https://github.com/user-attachments/assets/a58663e9-c21b-4f08-9b37-144ba6512f0e" />
-" />
 <br />
 <br />
 <br />
