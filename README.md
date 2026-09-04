@@ -1,31 +1,30 @@
 <img align="right" src="https://files.catbox.moe/7finhn.gif"> <br />
 <br />
-<img align="right"  width="188" height="100" alt="ezgif-6acc632e68bf1d29" src="https://github.com/user-attachments/assets/ce31ee61-3349-43f0-a727-064b916a21c4" />
-<img align="right"  width="188" height="100" alt="ezgif-1641d9544060b293" src="https://github.com/user-attachments/assets/4d29293e-a2db-4d2d-84cc-d9d7b5a333dd" />
-<img align="right"  width="188" height="100" alt="ezgif-8bebd81669cad0c0" src="https://github.com/user-attachments/assets/87ddffdf-5aec-4b4c-b37c-676e5f02affa" />
+<img align="right"  width="188" height="100" alt="ezgif-1641d9544060b293" src="https://github.com/user-attachments/assets/4d29293e-a2db-4d2d-84cc-d9d7b5a333dd" /> <img align="right"  width="188" height="100" alt="ezgif-8bebd81669cad0c0" src="https://github.com/user-attachments/assets/87ddffdf-5aec-4b4c-b37c-676e5f02affa" /> 
 <br />
 <br />
 <br />
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&size=24&duration=4000&color=F7E800&center=true&multiline=true&width=350&height=75&lines=we+hear+the+wilderness;and+it+hears+us)](https://git.io/typing-svg)  <img align="right" width="188" height="100" alt="ezgif-86d56c0707906eea" src="https://github.com/user-attachments/assets/20803945-c7d4-477d-a72a-e80bcec348db" />
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&size=24&duration=4000&color=F7E800&center=true&multiline=true&width=350&height=75&lines=we+hear+the+wilderness;and+it+hears+us)](https://git.io/typing-svg)  
+<br />
+<img align="right" width="188" height="100" alt="ezgif-86d56c0707906eea" src="https://github.com/user-attachments/assets/20803945-c7d4-477d-a72a-e80bcec348db" />
 <img align="right" width="188" height="100" alt="ezgif-8c0960c201a04dc5" src="https://github.com/user-attachments/assets/2faa8a9c-7e43-4fc5-aef8-6be4ff2723b8" />
+
+<br /> 
 <br />
+<br /> 
 
 
-<br />
-<br />
-<br />
+***[rentry](https://rentry.co/parkinglott)***<br /> 
 
 
-***[rentry](https://rentry.co/parkinglott)***<br />  <img align="right" width="188" height="100" alt="ezgif-6bf72ea1ba7aa84f" src="https://github.com/user-attachments/assets/a1148fa9-ece7-4eea-8713-64229db0a563" />
+***[pronouns.cc](https://pronouns.cc/@wlwattson)***<br /> 
 
-***[pronouns.cc](https://pronouns.cc/@wlwattson)***<br />
-
-***[atabook](https://wlwattson.atabook.org/)***<br />
+***[atabook](https://wlwattson.atabook.org/)***<br /> <img align="right" width="188" height="100" alt="ezgif-6bdd28a47e7b0e9d" src="https://github.com/user-attachments/assets/4490dff1-24ca-4ecc-9c6a-243fcadb327e" /> <img align="right"  width="188" height="100" alt="ezgif-6acc632e68bf1d29" src="https://github.com/user-attachments/assets/ce31ee61-3349-43f0-a727-064b916a21c4" />
 <br />
 
 
 ![](https://komarev.com/ghpvc/?username=wlwattson&color=yellow&label=visits!&style=for-the-badge&abbreviated=true)   <br />
-<br />
+<br /> 
 
 <p align="left">
   <a href="https://github.com/kittinan/spotify-github-profile">
