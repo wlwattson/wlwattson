@@ -6,12 +6,13 @@
 <br />
 <br />
 <br />
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&size=24&duration=4000&color=F7E800&center=true&multiline=true&width=350&height=75&lines=we+hear+the+wilderness;and+it+hears+us)](https://git.io/typing-svg) 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&size=24&duration=4000&color=F7E800&center=true&multiline=true&width=350&height=75&lines=we+hear+the+wilderness;and+it+hears+us)](https://git.io/typing-svg)  <img align="right" width="188" height="100" alt="ezgif-86d56c0707906eea" src="https://github.com/user-attachments/assets/20803945-c7d4-477d-a72a-e80bcec348db" />
+<img align="right" width="188" height="100" alt="ezgif-8c0960c201a04dc5" src="https://github.com/user-attachments/assets/2faa8a9c-7e43-4fc5-aef8-6be4ff2723b8" />
+
 <br />
 <br />
 <br />
-<br />
-***Payton, 15, he/him lesbian, i like yellowjackets***<br />
+
 
 ***[rentry](https://rentry.co/parkinglott)***<br />
 
