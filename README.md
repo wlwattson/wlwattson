@@ -23,7 +23,7 @@
 <br />
 
 
-![](https://komarev.com/ghpvc/?username=wlwattson&color=yellow&label=visits!&style=for-the-badge&abbreviated=true)   <br />
+![](https://komarev.com/ghpvc/?username=wlwattson&color=yellow&label=visits!&style=for-the-badge)   <br />
 <br /> 
 
 <p align="left">
